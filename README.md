@@ -1,1 +1,1 @@
-# youthforempatheticai.github.io
+# yeaieducation.github.io
